@@ -7,3 +7,8 @@ Entry for the **Create Video Content for Avantis Challenges** bounty (First Doll
 - Participation is free; selection is not guaranteed; nothing here is financial advice.
 
 Learn more: https://avantisfi.com — search "Avantis Challenges" on Telegram.
+
+## Get the full pack
+
+More Matchbook Labs digital products (datasets, banner packs, Solana starter kits) are on
+[Getly](https://www.getly.store/store/matchbook-labs-mtmw06l2).
