@@ -11,4 +11,4 @@ Learn more: https://avantisfi.com — search "Avantis Challenges" on Telegram.
 ## Get the full pack
 
 More Matchbook Labs digital products (datasets, banner packs, Solana starter kits) are on
-[Getly](https://www.getly.store/store/matchbook-labs-mtmw06l2).
+[Getly](https://www.getly.store/store/matchbook-labs-mtrfh66f).
